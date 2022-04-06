@@ -6,7 +6,7 @@ Crisafulli, Francisco
   <p>
     Pages, Julian
     <p>
-      Tejeda, Francisco
+      Tejeda Dominguez, Francisco
       <p>
 Profesores
 <h1>
